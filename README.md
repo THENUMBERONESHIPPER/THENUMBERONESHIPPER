@@ -28,4 +28,4 @@
 
 [@salt2465](https://github.com/salt2465) is pony towns <b>number one justitaki shipper!</b>
 
-[@YakultPaws](https://github.com/YakultPaws) is pony towns <b>number one Cosmo X Flyte shipper!</b>
+[@YakultPawz](https://github.com/YakultPawz) is pony towns <b>number one Cosmo X Flyte shipper!</b>
