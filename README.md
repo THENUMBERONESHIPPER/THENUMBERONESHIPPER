@@ -25,3 +25,5 @@
 [@9i71](https://github.com/9i71) is pony towns <b>number one lizbecca shipper!</b> <i>nominated by [@Scr1bblez](https://github.com/Scr1bblez)</i>
 
 [@ColdDeadplate](https://github.com/ColdDeadplate) is pony towns <b>number one Beddie shipper!</b>
+
+[@salt2465](https://github.com/salt2465) is pony towns <b>number one justitaki shipper!</b>
