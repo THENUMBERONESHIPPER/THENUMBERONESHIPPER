@@ -27,3 +27,5 @@
 [@ColdDeadplate](https://github.com/ColdDeadplate) is pony towns <b>number one Beddie shipper!</b>
 
 [@salt2465](https://github.com/salt2465) is pony towns <b>number one justitaki shipper!</b>
+
+[@YakultPaws](https://github.com/YakultPaws) is pony towns <b>number one  osmo X Flyte shipper!</b>
