@@ -17,3 +17,7 @@
 [@Scr1bblez](https://github.com/Scr1bblez) is pony towns <b>number one dollzi shipper!</b>
 
 [@bittertimes](https://github.com/bittertimes) is pony towns <b>number one cocole (cole brew + nicole ting) shipper!</b>
+
+[@aetherparadise](https://github.com/aetherparadise) is pony towns <b>number one phaesporiashipping + playroughshipping shipper!</b>
+
+[@symbiosisduo](https://github.com/symbiosisduo) is pony towns <b>number one toxichero >+ ++++++++++ ninecapten (minesweeper plus+, captain, nine, and ten) shipper!</b>
