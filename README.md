@@ -29,3 +29,5 @@
 [@salt2465](https://github.com/salt2465) is pony towns <b>number one justitaki shipper!</b>
 
 [@YakultPawz](https://github.com/YakultPawz) is pony towns <b>number one Cosmo X Flyte shipper!</b>
+
+[@Matt-Engarde](https://github.com/Matt-Engarde) is pony towns <b>number one rex (tlm2) x luminance (fe2) shipper!</b>
