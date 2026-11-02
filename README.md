@@ -16,4 +16,4 @@
 
 [@Scr1bblez](https://github.com/Scr1bblez) is pony towns <b>number one dollzi shipper!</b>
 
-[@bittertimes](https://github.com/bittertimes) is pony towns <b>number one cocole/cole brew + nicole ting) shipper!</b>
+[@bittertimes](https://github.com/bittertimes) is pony towns <b>number one cocole (cole brew + nicole ting) shipper!</b>
