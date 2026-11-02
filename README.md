@@ -20,4 +20,4 @@
 
 [@aetherparadise](https://github.com/aetherparadise) is pony towns <b>number one phaesporiashipping + playroughshipping shipper!</b>
 
-[@symbiosisduo](https://github.com/symbiosisduo) is pony towns <b>number one toxichero>+ ++++++++++ ninecapten (minesweeper plus+, captain, nine, and ten) shipper!</b>
+[@symbiosisduo](https://github.com/symbiosisduo) is pony towns <b>number one toxichero + ++++++++++ ninecapten (minesweeper plus+, captain, nine, and ten) shipper!</b>
