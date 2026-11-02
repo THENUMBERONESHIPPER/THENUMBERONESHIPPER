@@ -23,3 +23,5 @@
 [@symbiosisduo](https://github.com/symbiosisduo) is pony towns <b>number one toxichero + ++++++++++ ninecapten (minesweeper plus+, captain, nine, and ten) shipper!</b>
 
 [@9i71](https://github.com/9i71) is pony towns <b>number one lizbecca shipper!</b> <i>nominated by [@Scr1bblez](https://github.com/Scr1bblez)</i>
+
+[@ColdDeadplate](https://github.com/ColdDeadplate) is pony towns <b>number one Beddie shipper!</b>
