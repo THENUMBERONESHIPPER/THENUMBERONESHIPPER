@@ -12,6 +12,6 @@
 
 [@THEANGELICHERALDOFDEATH](https://github.com/THEANGELICHERALDOFDEATH) is pony towns <b>number one yahikonanaga / Yahiko x Konan x Nagato / polyrain shipper!</b>
 
-[@ReplicaOfAffection](https://github.com/ReplicaOfAffection) is pony towns <b>number one valensoul + ornament cookie + shellvision + flutterberry + bandaid (mikan x ibuki) fan!</b>
+[@ReplicaOfAffection](https://github.com/ReplicaOfAffection) is pony towns <b>number one valensoul + ornament cookie + shellvision + flutterberry + bandaid (mikan x ibuki) shipper!</b>
 
-[@Scr1bblez](https://github.com/Scr1bblez) is pony towns <b>number one dollzi fan!</b>
+[@Scr1bblez](https://github.com/Scr1bblez) is pony towns <b>number one dollzi shipper!</b>
