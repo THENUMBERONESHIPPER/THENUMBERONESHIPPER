@@ -31,3 +31,7 @@
 [@YakultPawz](https://github.com/YakultPawz) is pony towns <b>number one Cosmo X Flyte shipper!</b>
 
 [@Matt-Engarde](https://github.com/Matt-Engarde) is pony towns <b>number one rex (tlm2) x luminance (fe2) shipper!</b>
+
+[@frag1leserendip1ty](https://github.com/frag1leserendip1ty) is pony towns <b>number one Maxolin + Pattison + Jori + SunPie shipper!</b>
+
+[@KALININGRAD-OBLAST](https://github.com/KALININGRAD-OBLAST) is pony towns <b>number one Isarin + egoshipping shipper!</b>
